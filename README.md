@@ -15,6 +15,6 @@ The research are done by survey through personal approach and interview with the
 ## Insights
 Plenty of insights found are the organization need works for the recruitment and human resource management system, other than that could be read for more detail in 'Presidential Blueprint'
 
-## Author
+
 ###### _Calista Lianardi_
 ###### _32nd Regional President of BNEC Kemanggisan_
